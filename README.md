@@ -1,3 +1,3 @@
 # Butter.beer.or-and.potato.juice.beer---with-potatoes.from.Roeino
-we don't take potatoes from Torino...we collect potatoes from our ground at Roeino...with Palavontitsa water too...Peloponeesos is my home ground so why not collect a couple of potatoes from Green village or Mainalon village..what about a Bloody Mary production or..
+we don't take potatoes from Torino...we collect potatoes from our ground at Roeino...with Palavontitsa water too...Peloponisos is my home ground so why not collect a couple of potatoes from Green village or Mainalon village..what about a Bloody Mary production or..
 Michelada: A Mexican favorite combining beer, tomato juice, lime, hot sauce, and chili-lime seasoning. With matterials From our ground...
